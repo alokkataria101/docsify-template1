@@ -1,2 +1,1 @@
-# Welcome to the Docsified Page of the IBM Cloud Compliance!
-IBM Cloud Battleship Team
+# Welcome to the Docsified Page of the by github account. Thanks !!!!!
